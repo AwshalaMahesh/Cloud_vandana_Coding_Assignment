@@ -1,1 +1,0 @@
-# Cloud_vandana_Coding_Assignment
